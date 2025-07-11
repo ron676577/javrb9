@@ -34,4 +34,4 @@
 结语  
 在选择日本AV免费资源平台时，确保选择一个优质、安全的平台，这将大大提升你的观影体验。通过这些平台，用户不仅能够享受到高清、流畅的影片，还能保证观看过程的安全和隐私保护。  
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/ron676577/javrb9 )</span>
